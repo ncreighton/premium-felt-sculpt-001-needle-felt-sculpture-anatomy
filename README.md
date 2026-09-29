@@ -1,0 +1,2 @@
+# premium-felt-sculpt-001-needle-felt-sculpture-anatomy
+Tired of your needle felt sculptures looking lumpy and disproportionate? Stop guessing—professional sculptors know that accurate anatomy is the secret to lifelike results.  The Needle Felt Sculpture Anatomy Reference Guide transforms your Notion workspace into a dedicated anatomy lab. It replaces messy bookmarks and forgotten tutorials with a struc
